@@ -1,5 +1,5 @@
 # About Me:
-I am a third-year Bachelor of Science in Information Technology student, majoring in Business Analytics, at Batangas State University TNEU - ARASOF Nasugbu, located in Nasugbu, Batangas
+I am a third-year Bachelor of Science in Information Technology student, majoring in Business Analytics, at Batangas State University TNEU - ARASOF Nasugbu Campus, located in Nasugbu, Batangas
 
 
 ## Socials:
